@@ -1,5 +1,6 @@
-# Stats220
+#### -*Study *
 
+#### -*Personal Experience*
 
 
 
