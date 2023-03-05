@@ -4,5 +4,5 @@
 
 
 
-#### CUrrently what i looks like 
+#### Currently what i looks like 
 ![](https://media.tenor.com/e046riJYwWwAAAAC/bocchi-bocchi-the-rock.gif)
