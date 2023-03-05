@@ -3,7 +3,8 @@
 * `Univeraity of Auckland Bachelor of Science Data Science major (Taking)`
 
 #### -*Personal Experience*
-
+1.
+2.
 
 
 
