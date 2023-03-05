@@ -1,4 +1,6 @@
 #### -*Study *
+* NZEA Level 3 study in [Mout Roskill Grammer](https://www.mrgs.school.nz/) (Merit endorsement)
+*
 
 #### -*Personal Experience*
 
